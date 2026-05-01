@@ -1,0 +1,1 @@
+# sman1parung.sch.id
